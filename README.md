@@ -1,4 +1,4 @@
 # hello-world
 Just another repository XD 
 
-bruh
+bruh this sucks
